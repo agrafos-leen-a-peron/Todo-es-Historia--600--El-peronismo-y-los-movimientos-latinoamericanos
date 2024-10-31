@@ -11,3 +11,5 @@ El intento de constituirse en una fuerza continental provino de su proceso inspi
 el movimiento de universitarios limeños habia abrevado en la Reforma Universitaria iniciada en Cordoba en 1918.
 De alli habian salido las consignas democratizantes de la educacion superior, el espiritu americanista que no queria detenerse ante las fronteras que dividian lo que era uno,
 la obra de _"emprender la redencion espiritual de las juventudes"_ como se decia con la retorica propia del _Manifiesto Liminar_ de la Reforma suscripto por Deodoro Roca.
+Ese lenguaje del socialismo romantico fue rapidamente reemplazado por consignas mas sustanciosas, cuando los iniciadores del APRA
+se encontraban en el exilio, que su fundador y lider indiscutible, Victor Raul Haya de la Torre, paso principalmente en Mexico.
